@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @mo778
+- 👋 Hi, I’m Mung @mo778
 - 👀 I’m interested in buildin new project
-- 🌱 I’m currently learning entrepeneurship
+- 🌱 I’m currently learning entrepreneurship
 - 💞️ I’m looking to collaborate on my project of building smart village
 - 📫 How to reach me at elle9707@gmail.com
 
